@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on the Mytrek AI and Ozzy AI, which is a personal project. <br>💬 Ask me about anything on mhdelavaran@gmail.com<br>⚡ I love coffee and video games, and everything AI
+Ask me about anything on mhdelavaran@gmail.com<br>⚡ I love coffee and video games, and everything AI
 
 
 ## 🌐 Socials:
